@@ -82,8 +82,7 @@ Travel&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&n
 
 Orlando, Florida
 
-*April 2021- Present*
-
+*April 2021- Present*<br/><br/>
 
 
 **Team Member- Service and Sales**
