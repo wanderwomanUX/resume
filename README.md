@@ -78,6 +78,13 @@ Travel&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&n
 
 #### WORK EXPERIENCE
 
+**Freelance UX Designer**
+
+Orlando, Florida
+
+*April 2021- Present*
+
+
 **Team Member- Service and Sales**
 
 The Cross of Saint George - Paris, France
@@ -102,8 +109,6 @@ Orlando, Florida 
 *August 2009 – November 2019*
 
 - Collaboration, development and implementation of strategies to promote brands, products and services on short time frames with stakeholders, managers and other ambassadors
-
-- Represented the company in a positive way by providing quality services to clients
 
 - Gathered and responded to client feedback
 
