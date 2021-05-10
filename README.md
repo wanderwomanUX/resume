@@ -85,6 +85,7 @@ Orlando, Florida
 *April 2021- Present*
 
 
+
 **Team Member- Service and Sales**
 
 The Cross of Saint George - Paris, France
